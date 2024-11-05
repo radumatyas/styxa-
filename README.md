@@ -1,2 +1,0 @@
-# styxa-
-feladatok 
